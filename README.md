@@ -37,7 +37,10 @@
 
 ### Output:
 
-![Screenshot 2024-11-25 111501](https://github.com/user-attachments/assets/defaf9dc-ff26-4ca5-b51b-b44d9f57bb6f)
+
+![Screenshot 2024-11-25 112453](https://github.com/user-attachments/assets/24e7da36-c81e-4c2b-ade2-e0e17d2b5cff)
+
+
 
 
 ### Name: Santhose Arockiaraj J
